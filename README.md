@@ -3,6 +3,12 @@
 
 im river he/him im nice and probably more scared of you than you are of me so dont be shy lol
 
+im a minor so like dont be weird ok.
+
+im n1 satosugu enthusiast but im also a multishipper so like yeah
+
+gojohime shippers dni go away go away go away go away i hate you go away /hj
+
 <!--
 **riverheree/riverheree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
