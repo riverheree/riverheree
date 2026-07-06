@@ -1,5 +1,6 @@
 # Hi!!
-<img width="640" height="443" alt="bouncy satosugu" src="https://github.com/user-attachments/assets/dbf46011-5198-4f63-aa7c-fc0b352688a2" />
+<img width="440" height="243" alt="bouncy satosugu" src="https://github.com/user-attachments/assets/dbf46011-5198-4f63-aa7c-fc0b352688a2" />
+
 im river he/him im nice and probably more scared of you than you are of me so dont be shy lol
 
 <!--
