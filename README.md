@@ -11,6 +11,10 @@ gojohime shippers dni go away go away go away go away i hate you go away /hj
 
 i usually hang out w my friend in the lego or jjk area but i occasionally go to mc area or just wander
 
+also im autistic so sry if i act kinda weird
+
+transphobes & homophobes dni!
+
 <!--
 **riverheree/riverheree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
