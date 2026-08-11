@@ -1,19 +1,15 @@
 # Hi!!
 <img width="440" height="343" alt="bouncy satosugu" src="https://github.com/user-attachments/assets/dbf46011-5198-4f63-aa7c-fc0b352688a2" />
 
+Istj 6w5
+
 im river he/him im nice and probably more scared of you than you are of me so dont be shy lol
 
 im a minor so like dont be weird ok.
 
-im n1 satosugu enthusiast but im also a multishipper so like yeah
-
-gojohime shippers dni go away go away go away go away i hate you go away /hj
-
 i usually hang out w my friend in the lego or jjk area but i occasionally go to mc area or just wander
 
 also im autistic so sry if i act kinda weird
-
-transphobes & homophobes dni!
 
 <!--
 **riverheree/riverheree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
