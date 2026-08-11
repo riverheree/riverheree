@@ -3,13 +3,11 @@
 
 Istj 6w5
 
-im river he/him im nice and probably more scared of you than you are of me so dont be shy lol
+im probably more scared of you than you are of me
 
-im a minor so like dont be weird ok.
+im a minor so like dont be weird
 
-i usually hang out w my friend in the lego or jjk area but i occasionally go to mc area or just wander
-
-also im autistic so sry if i act kinda weird
+audhd
 
 <!--
 **riverheree/riverheree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
