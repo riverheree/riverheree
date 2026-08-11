@@ -1,7 +1,7 @@
 # Hi!!
 <img width="440" height="343" alt="bouncy satosugu" src="https://github.com/user-attachments/assets/dbf46011-5198-4f63-aa7c-fc0b352688a2" />
 
-<code style="color : blue">Istj 6w5</code>
+Istj 6w5
 
 im probably more scared of you than you are of me
 
