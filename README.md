@@ -3,6 +3,8 @@
 
 Istj 6w5
 
+not very active on pt
+
 im probably more scared of you than you are of me
 
 im a minor so like dont be weird
