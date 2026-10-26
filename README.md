@@ -11,7 +11,7 @@ im a minor so like dont be weird
 
 audhd
 
-casual yuji kin 
+casual yuji kinnie
 
 <!--
 **riverheree/riverheree** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
